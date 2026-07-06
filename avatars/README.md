@@ -1,1 +1,0 @@
-MYTT Avatars
